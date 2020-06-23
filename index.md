@@ -16,3 +16,4 @@ Welles called Hayworth, his first wife:
 > I was lucky enough to have been with her longer 
 > than any of the other men in her life
 
+<img src="https://upload.wikimedia.org/wikipedia/commons/3/34/Citizen-Kane-Welles-Podium.jpg"/>
