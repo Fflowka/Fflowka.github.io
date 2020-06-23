@@ -9,3 +9,10 @@ His first film was Citizen Kane (1941), which is consistently ranked as the grea
 * The Mercury Theatre on the Air (radio anthology series)
 * Lady from Shanghai 
 * The Third Man (as actor)
+
+Welles called Hayworth, his first wife:
+> one of the dearest and sweetest women that ever lived 
+> … and we were a long time together —
+> I was lucky enough to have been with her longer 
+> than any of the other men in her life
+
